@@ -1,2 +1,0 @@
-# eslavonia
-eslavonia no eslovenia
